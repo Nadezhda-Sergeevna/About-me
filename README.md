@@ -1,4 +1,4 @@
-![ФОТО](https://drive.google.com/file/d/1y7KETwRAD1vDQOMIHJrv4dPWxnY1pxZ1/view?usp=drive_link)
+![](https://drive.google.com/file/d/1FI1KN4oiv8HrzyHNYvMc8nbSSiL3HU6L/view?usp=sharing)
 
 # О себе
 - Начинающая волшебница
