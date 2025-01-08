@@ -1,4 +1,4 @@
-![](https://drive.google.com/file/d/1FI1KN4oiv8HrzyHNYvMc8nbSSiL3HU6L/view)
+![](C:\Users\solop\Desktop\Учеба\About me\photo_2025-01-08_23-26-42.png)
 
 # О себе
 - Начинающая волшебница
