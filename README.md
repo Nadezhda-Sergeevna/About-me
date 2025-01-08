@@ -1,4 +1,4 @@
-![](C:\Users\solop\Desktop\Учеба\About me\photo_2025-01-08_23-26-42.png)
+![](https://github.com/Nadezhda-Sergeevna/About-me/blob/main/image/photo.png)
 
 # О себе
 - Начинающая волшебница
